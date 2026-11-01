@@ -1,0 +1,1 @@
+# egeszek_szorzasa
